@@ -11,12 +11,13 @@ All the pictures are here
 ![IMG](https://github.com/trandang0709/NEMS2024Pictures/blob/main/Banquet-Dinner/1000001436.jpg)
 ![IMG](https://github.com/trandang0709/NEMS2024Pictures/blob/main/Banquet-Dinner/1000001437.jpg)
 ![IMG](https://github.com/trandang0709/NEMS2024Pictures/blob/main/Banquet-Dinner/1000001439.jpg)
-https://github.com/trandang0709/NEMS2024Pictures/blob/main/Banquet-Dinner/IMG_3621.MOV
-https://github.com/trandang0709/NEMS2024Pictures/blob/main/Banquet-Dinner/IMG_3622.MOV
-https://github.com/trandang0709/NEMS2024Pictures/blob/main/Banquet-Dinner/IMG_3623.MP4
-https://github.com/trandang0709/NEMS2024Pictures/blob/main/Banquet-Dinner/IMG_3624.MP4
-https://github.com/trandang0709/NEMS2024Pictures/blob/main/Banquet-Dinner/IMG_3625.MP4
+
+https://github.com/trandang0709/NEMS2024Pictures/assets/46659362/fb288e74-10eb-483a-b3ca-dddfa5bd6c2f
+
+https://github.com/trandang0709/NEMS2024Pictures/assets/46659362/c9011cd4-6ede-49f5-90b0-a80c217b1168
+
+https://github.com/trandang0709/NEMS2024Pictures/assets/46659362/18122da3-377f-47d0-aa19-456b404fb000
 
 
-https://github.com/trandang0709/NEMS2024Pictures/assets/46659362/35add6ed-556b-4c7c-9b6d-5351756ff626
+
 
