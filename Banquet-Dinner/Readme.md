@@ -16,3 +16,7 @@ All the pictures are here
 ![](https://github.com/trandang0709/NEMS2024Pictures/blob/main/Banquet-Dinner/IMG_3623.MP4)
 ![](https://github.com/trandang0709/NEMS2024Pictures/blob/main/Banquet-Dinner/IMG_3624.MP4)
 ![](https://github.com/trandang0709/NEMS2024Pictures/blob/main/Banquet-Dinner/IMG_3625.MP4)
+
+
+https://github.com/trandang0709/NEMS2024Pictures/assets/46659362/35add6ed-556b-4c7c-9b6d-5351756ff626
+
