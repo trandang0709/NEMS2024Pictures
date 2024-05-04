@@ -1,8 +1,7 @@
 All the pictures are here
-![IMG](https://github.com/trandang0709/NEMS2024Pictures/blob/main/Banquet-Dinner/IMG_3622.JPEG)
 ![IMG](https://github.com/trandang0709/NEMS2024Pictures/blob/main/Banquet-Dinner/IMG_3626.JPEG)
 ![IMG](https://github.com/trandang0709/NEMS2024Pictures/blob/main/Banquet-Dinner/IMG_3627.JPEG)
-
+![IMG](https://github.com/trandang0709/NEMS2024Pictures/blob/main/Banquet-Dinner/IMG_3622.JPEG)
 ![IMG](https://github.com/trandang0709/NEMS2024Pictures/blob/main/Banquet-Dinner/1000001440.jpg)
 ![IMG](https://github.com/trandang0709/NEMS2024Pictures/blob/main/Banquet-Dinner/1000001441.jpg)
 ![IMG](https://github.com/trandang0709/NEMS2024Pictures/blob/main/Banquet-Dinner/1000001442.jpg)
