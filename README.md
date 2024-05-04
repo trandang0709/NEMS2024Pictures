@@ -4,6 +4,7 @@ Hi my dear friends,
 These are the pictures that we took together.
 
 [NEMS 2024 memories URL]: (https://github.com/trandang0709/NEMS2024Pictures/tree/main/Banquet-Dinner "NEMS-2024-memories")
+
 **Have picture you want to share?**
 
 You can send the pictures you took and want to share with others to me,
